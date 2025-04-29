@@ -22,4 +22,4 @@ I'm bilingual (English/Spanish) 🇲🇽 and love supporting animal rescue effor
 
 ---
 
-📫 Let's connect: [LinkedIn](https://your-linkedin.com) | [Portfolio](https://your-portfolio.com)
+📫 Let's connect: [LinkedIn](www.linkedin.com/in/karen-burrola) | [Portfolio](https://your-portfolio.com)
